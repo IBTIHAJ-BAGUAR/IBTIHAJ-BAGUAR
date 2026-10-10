@@ -65,7 +65,7 @@ More projects coming soon!
 📫 Contact Me
 
 * Email: ibtihajbaguar43@gmail.com
-* GitHub: My GitHub Profile
+* GitHub: IBTIHAJ-BAGUAR
 
 ⸻
 
